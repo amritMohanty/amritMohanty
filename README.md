@@ -1,4 +1,5 @@
 ### Hi there 👋 
+- ⚡ Hire me for Remote work and Internships
 - 🔭 I’m currently working on personal projects
 - 🌱 I’m currently learning JavaScript, React
 - 👯 I’m looking to collaborate on projects
