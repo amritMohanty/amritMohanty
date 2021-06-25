@@ -9,3 +9,4 @@
 - my LinkedIn: [Amrit Mohanty](https://www.linkedin.com/in/amrit-mohanty-750795197/)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I've helped raise 3 generations of dogs
+- 🍵 I am a Chai/Tea Lover, love talking, learning, sharing stuff about different cultures 💙 
