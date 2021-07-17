@@ -11,4 +11,4 @@
 - ⚡ Fun fact: I've helped raise 3 generations of dogs
 - 🍵 I am a Chai/Tea Lover
 - 💙 love talking, learning, sharing stuff about different cultures
-- 🖤 BLM 🏳️‍🌈 pride_ally
+- 🏳️‍🌈 pride_ally
